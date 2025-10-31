@@ -4,7 +4,7 @@
 
 ## Información de la estudiante
 
-Corina Plata-Ante \[03210981]; corina.plata@tectijuana.edu.mx
+Almazan Pacheco Maria Fernanda 22211744
 
 Modelado de Sistemas Fisiológicos
 
